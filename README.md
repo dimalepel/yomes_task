@@ -1,3 +1,3 @@
 # yomes_task
 
-Ссылка на таск: https://dimalepel.github.io/yomes_task/
+CСЃС‹Р»РєР° РЅР° С‚Р°СЃРє: https://dimalepel.github.io/yomes_task/
